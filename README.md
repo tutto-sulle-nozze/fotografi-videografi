@@ -7,4 +7,8 @@ Due elementi di cui un cantautore di musica pop e un'esperta chitarrista compong
 ### Attività legate alla fotografia
 La sezione doveva illustrare allo stesso modo operatori video e fotografi, ma poi si è trasformata man mano in una sezione dedicata solmanete ai videografi.
 ## Seconda azienda
-Video in alta definizione da questo gruppo di professionisti italiani: riprenderanno scene conviviali realizzando con la massima creatività tutto ciò che può rendere unico ed emozionante il ricordo della vostra festa.
+Video in alta definizione da questo gruppo di professionisti italiani: riprenderanno scene conviviali realizzando con la massima creatività tutto ciò che può rendere unico ed emozionante il ricordo della vostra festa. L'attesissimo giorno verrà impresso nella pellicola grazie alle capacità dei due elementi che compongono questa azienda, dotati entrambi di un'elevata capacità di cogliere i momenti migliori e spontanei e di catturarli per l'eternità. La gamma di servizi comprende anche:
+- post-produzione e montaggio
+- consegna del CD o chiavetta USB dove scaricare il filmato
+- creazione di mini spot televisivi divertenti con protagonisti voi sposi
+- video in HD con consegna di un prodotto di alta qualità
