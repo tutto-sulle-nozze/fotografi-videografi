@@ -18,4 +18,4 @@ Proseguiamo come sempre con l'articolo di Cristina per concludere la pagina.
 ## Alcuni consigli
 Per far sì che tutto riesca alla perfezione occorre un’adeguata organizzazione: questo vale anche per la manicure della sposa. Infatti, bisogna cominciare con i trattamenti almeno un mese prima per arrivare a quel giorno con le mani a prova di Sì! Questo vale soprattutto per chi ha l’abitudine di mangiare le unghie che deve resistere alla tentazione per almeno due mesi (esistono varie soluzioni per smettere di mangiare le unghie). Anche per le ricostruzioni ci si deve organizzare per tempo per capire quale forma si addice di più alla propria mano e scegliere i colori e le decorazioni che si desiderano! Infine diamo un consiglio alle spose più anticonformiste che vogliono un matrimonio e un look del tutto originale: la parola d’ordine è sbizzarrirsi!
 
-<a href="https://github.com/"><a href="https://www.LINK.it">LINK</a>
+<a href="https://github.com/"<a href="https://github.com/"><a href="https://www.LINK.it">LINK</a>><a href="https://www.LINK.it">LINK</a>
